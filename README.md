@@ -1,1 +1,1 @@
-![url](https://github.com/adityasaravana/adityasaravana/assets/65321521/995283c1-9332-4961-ac06-28295551ea36)
+When I see a push sign on a door, I pull first to avoid merge conflicts.
